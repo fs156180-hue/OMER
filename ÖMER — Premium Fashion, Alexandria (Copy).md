@@ -1,3 +1,0 @@
-[ÖMER](#home)
-
-WhatsApp
